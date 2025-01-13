@@ -1,1 +1,1 @@
-# mahjong3.openxcplatform.com
+# infini88.openxcplatform.com
